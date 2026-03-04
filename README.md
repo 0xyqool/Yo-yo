@@ -1,4 +1,3 @@
 # Yo-yoh
 Noob here
-ljkkkkljfnmd
-ddh
+ljkkkkljfnm
